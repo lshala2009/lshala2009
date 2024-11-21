@@ -18,11 +18,11 @@
 - 😄 Pronouns: she/her
 - 
 - ⚡ Fun fact: My pencil grip is extraordinary but regardless, I'm good at drawing.
-
--📚 My skills: Design, Art, Critical thinking, compelling essay writing, Mathematics, collaborative
-
--This is me!; 👩🏻
-
+-
+- 📚 My skills: Design, Art, Critical thinking, compelling essay writing, Mathematics, collaborative
+-
+- This is me!; 👩🏻
+-
 - 🏫 education:
 - Henry Anderson Elementary School 2015-2019
 - Stittsville public school 2019-2021
